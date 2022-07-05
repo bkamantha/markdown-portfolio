@@ -1,1 +1,1 @@
-https://www.linkedin.com/in/bhanukak/
+[linkedin](https://www.linkedin.com/in/bhanukak/)
