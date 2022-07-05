@@ -1,0 +1,1 @@
+I have a clear, logical mind, a practical approach to issue solving, and a strong commitment to see things through. I have experience in **Python** libraries like OpenCV Django TensorFlow and APIs,as well as I’m a Graphic designer with over a year of *product development experience at MAS Holdings*.
